@@ -2,7 +2,7 @@ I like to learn and create new things.
 
 Trying to learn more on how to develop websites and video games, as well as learning and understanding the languages.
 
-Current job is a programmer, but it's very simple things. Want to expand my assets and learn more.
+Current job is a programmer, but it's very simple things. Want to expand and learn more.
 
 
 
